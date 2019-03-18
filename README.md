@@ -1,4 +1,4 @@
-# Lazarela Mihali (AM 17041) 
+# Lazarela Mihali 
 
 **Ονοματεπώνυμο** :Lazarela Mihali
 
